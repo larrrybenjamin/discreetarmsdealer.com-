@@ -1,0 +1,2 @@
+# discreetarmsdealer.com-
+Glock 19 GEN 4 FOR SALE  This glock comes with 3 mags, 1 speed loader,the books (General firearm manual,  glock 19 gen 4 manual),cleaning brush and four adjustable backstraps.  I can't find the lock anymore.  I'm not sure if you need that but I don't have it anymore.  E-Mail: discreetarmsdealer@gmail.com Wickr: thediscreetboss Tel: +1(405) 296-0656  https://discreetarmsdealer.com
